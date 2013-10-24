@@ -1,0 +1,4 @@
+clipping
+========
+
+Blog psd tasarımı
